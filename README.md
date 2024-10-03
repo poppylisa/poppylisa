@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me Idk
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: i wany ur mom
+- ⚡ Fun fact: i want ur mom
 
 <!---
 poppylisa/poppylisa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
